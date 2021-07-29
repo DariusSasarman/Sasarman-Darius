@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MagmaEnder
+- 👋 Hi, I’m @DariusSasarman
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning all I can
 - 💞️ I’m looking to collaborate on everything I can
